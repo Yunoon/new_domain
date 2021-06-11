@@ -1,1 +1,1 @@
-# new_domain
+# 最新的域名为：https://miaocloud.xyz
